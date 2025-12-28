@@ -27,3 +27,4 @@
 <b>⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔</b><br><br>
 " Sometimes... the humans my power killed and turned into weapons<br><br>show up in my dreams and blame me for doing it. If I just let you die,<br><br>I have this feeling you'll start haunting my dreams too.<br><br>I also want to do everything I can to help you stay alive. "
 </p>
+<br>
