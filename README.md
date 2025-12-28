@@ -1,19 +1,29 @@
 <h1 align="center">
-PLEASE READ BEFORE INTERACTING!!
+♯ READ BEFORE INTERACTING!
 </h1>
-<h2 align="center">
-Important shit
-</h2>  
-
-> here u put wtv u wanna add + imgs and etc
-
+<br><br>
+<h3 align="center">
+⸜(｡˃ ᵕ ˂ )⸝♡ KER0 or KOKO  𓏵 TAKN ; 18 +     
+</h3>
+<br><br>
 <p align="center">
-<!-- put ur image-->
-  <img src="https://media1.tenor.com/m/QBomC7ypBVsAAAAd/shadownilla-shadowvanilla.gif" />
+    <img src="https://files.catbox.moe/poqmxb.gif">
 </p>
+<br><br>
 <p align="center">
-more stuff to put in here
+<b>⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔</b><br><br>
+── . INT freely! just dont come and roleplay w me "( – ⌓ – )<br><br>
+── . comfortable w C+H! <br><br>
+── . idc if u copy my skins <br><br>
+── . almost always w my boyfriend cuddling <br><br>
+── . english not my first language so sometimes I take time to answer
 </p>
-
-<!-- if u need help setting up smt tell me, dont change the names of the files or else the readme wont work, u can learn html + github's markdown system to do allat how u want to, but if ur too lazy to mind doing that, you can ask me and i'll do it for u lolsies this is the same structure of my readme but we can make it different and better-->
-
+<br><br>
+<p align="center">
+<img src="https://files.catbox.moe/tkge39.jpg" width="300px">
+</p>
+<br><br>
+<p align="center">
+<b>⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔</b><br><br>
+" Sometimes... the humans my power killed and turned into weapons<br><br>show up in my dreams and blame me for doing it. If I just let you die,<br><br>I have this feeling you'll start haunting my dreams too.<br><br>I also want to do everything I can to help you stay alive. "
+</p>
